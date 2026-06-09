@@ -15,6 +15,8 @@
 
 **Huge c+h comfort!!** feel free to c+h anytime :-) i'm usually offtab tho so i prefer w2i!
 
+you'll mostly see me with @thenirra !! other than that i'm typically just wandering or sitting alone :-)
+
 i'm a fictkin/id, i don't care about doubles at all !! ^_^ dbls can interact freely :-D
 
 my mood is very volatile, so im sorry if i seem dry/rude or uninterested!! its not you i promise
