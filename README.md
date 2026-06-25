@@ -9,7 +9,7 @@
 
   ‎   
 
-<info!!>
+<details>
 
 ‎   
 
