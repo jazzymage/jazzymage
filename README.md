@@ -1,7 +1,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#434b79}\text{(´･⩊･`)}$ ⠀⠀⠀⠀ $\color{#57adc6}\text{cyberkitty}$ $\color{#587ea8}\text{.ᐟ.ᐟ}$
 ⠀
 
- <img align="left" width="330" src="https://i.postimg.cc/mD6hwjqz/image2.png">
+ <img align="left" width="420" src="https://i.postimg.cc/mD6hwjqz/image2.png">
 
  <img align="middle" width="350" src="https://i.postimg.cc/Kj07tCS0/image.png">
  
