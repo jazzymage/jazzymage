@@ -10,5 +10,9 @@
  ⠀⠀⠀ $\color{#282e48}\text{mage}$ $\color{#343b5e}\text{or}$ $\color{#454d7b}\text{jazz}$ ⠀⠀ $\color{#507299}\text{ฅ(ᵔ꒳ ᵔマ}$  ⠀⠀  $\color{#5185a4}\text{they}\color{#5296ae}\text{he}\color{#53b3c2}\text{it}$ ⠀ ![](https://i.postimg.cc/LsF93XTM/tumblr-e7bdb325872b3107feaa809db2defe62-8e738cf2-75.png)
 
  ⠀⠀⠀⠀⠀ <img align="middle" width="230" src="https://i.postimg.cc/0QW1F2pd/tumblr-efc88ba185fa41faacab84091a1b8ff4-3be7a4c8-2048.gif">
+
+  
+  ⠀⠀⠀⠀⠀⠀⠀ $\color{#282e48}\text{more on my patreon}$ [patreon](https://www.patreon.com/cw/jazzyymage)
+  
  <img align="middle" width="350" src="https://i.postimg.cc/ht6ryFzd/image.png">
 <br clear="left"/>
