@@ -12,7 +12,7 @@
  ⠀⠀⠀⠀⠀ <img align="middle" width="230" src="https://i.postimg.cc/0QW1F2pd/tumblr-efc88ba185fa41faacab84091a1b8ff4-3be7a4c8-2048.gif">
 
   
-  ⠀⠀⠀⠀⠀⠀⠀ $\color{#282e48}\text{more on my}$ [patreon](https://www.patreon.com/cw/jazzyymage)
+  ⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#282e48}\text{more on my}$ [patreon](https://www.patreon.com/cw/jazzyymage)
   
  <img align="middle" width="350" src="https://i.postimg.cc/ht6ryFzd/image.png">
 <br clear="left"/>
